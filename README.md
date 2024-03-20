@@ -1,0 +1,7 @@
+![IMG_3765](https://github.com/Immanuel1211/gambar3-beads/assets/114354123/de373159-e0b3-478f-b33a-11d23cb65f85)
+![IMG_3461](https://github.com/Immanuel1211/gambar3-beads/assets/114354123/912d5190-6a7b-42a5-be11-b3774b1ee262)
+![IMG_3454](https://github.com/Immanuel1211/gambar3-beads/assets/114354123/717d9f4a-0deb-4c1b-b913-0c251d99ca10)
+![IMG_3491](https://github.com/Immanuel1211/gambar3-beads/assets/114354123/45b1052f-7ffc-47e2-a8c2-01c48dc4a366)
+![IMG_3459](https://github.com/Immanuel1211/gambar3-beads/assets/114354123/41e3017e-58fa-418d-a63e-18cfd2e4657f)
+![IMG_3519](https://github.com/Immanuel1211/gambar3-beads/assets/114354123/e1096a79-e423-4666-b1de-a1cd7f1c0d6d)
+![IMG_3529](https://github.com/Immanuel1211/gambar3-beads/assets/114354123/5f9ce4f0-f644-4eb7-9cd8-5eb8e8d1a221)
